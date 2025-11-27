@@ -23,3 +23,7 @@ this is why you shouldnt mess with people that might be dangerous because in rea
 remember im risking my github rn
 download and hack all you can, its free and i advice you to hack it because thats what i want.
 put it on the dark web or whatever, that just makes it better.
+
+hope he regrets this
+
+- personaly from mad Exevectorr and no Exevectorr worker or member
